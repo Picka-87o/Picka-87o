@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Picka-87o
 - 👀 I’m interested in learn in programming
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning nothing I'm looking for programming tutorials
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
